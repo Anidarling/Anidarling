@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anidarling
-- 👀 I’m interested in THETRE
+- 👀 I’m interested in THEATRE
 - 🌱 I’m currently learning ARTIFICIAL INTELLIGENCE
 - 💞️ I’m looking to collaborate on BASICALLY ANYTHING
 - 📫 Reach me at animeshmani27122002@gmail.com
